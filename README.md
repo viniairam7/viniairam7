@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @viniairam7
-- 👀 I’m interested in learn
+- 👀 Just Here for Learn, sorry if you expected more from me
 - 📫 And that's it!
 
